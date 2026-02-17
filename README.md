@@ -6,12 +6,12 @@
 <img width="700" height="750" alt="PrinceZam" src="https://file.garden/aL0qqr5-Fnt8to6H/ezgif.com-speed_7.gif"/>
   <b> 　　 </b>
 
-<b> Flame / Others , Xe / Ask .  <br>
+<b> Flaine / Others , Xe / Ask .  <br>
 
-Offtab really often, w2i unless name says otherwise ! Reading name for status is also recommended okay. . . Suspected osdd-1b , recognize ourselves as ' we ' - different selves .
+offtab really often, w2i or we might not see the message ! Reading name for status is also recommended okay. . . Suspected osdd-1b , recognize ourselves as ' we ' - different selves . we're very often seen ( like all the time ) with our partner and prefer to stick around him @Th3strongest <3 . 
   <b> 　　 </b>
 
-Usually up for c+h unless stated otherwise , please iwcare and be patient when interacting with us . Memory related troubles may occur .
+mild-severe touch trigger/discomfort + heavy cover discomfort. do not c+h nor cover without asking or we will move away , refrain from c+h if we're already with our partner / friends . do iwecare and be patient when interacting with us . memory related troubles may occur and we may have moments of unstability , we're very sensitive to many things so expect us to react likewise .
   <b> 　　 </b>
 
 ✦. links down below .
