@@ -16,7 +16,7 @@ mild-severe touch trigger/discomfort + heavy cover discomfort. do not c+h nor co
 
 ✦. links down below .
 
- reworking˗ˏˋ ★ ˎˊ˗ reworking ˗ˏˋ ★ ˎˊ˗ <a href="https://pronouns.cc/@astjupiter">pronouns</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://crimsonwest.atabook.org/">atabook<a/> ˗ˏˋ ★ ˎˊ˗ <a href="https://rentry.co/godist">rentry<a/>
+ reworking˗ˏˋ ★ ˎˊ˗ reworking ˗ˏˋ ★ ˎˊ˗ <a href="https://pronouns.cc/@astjupiter">pronouns</a> ˗ˏˋ ★ ˎˊ˗ <a href="[https://crimsonwest.atabook.org/](https://psalm.atabook.org/)">atabook<a/> ˗ˏˋ ★ ˎˊ˗ <a href="https://rentry.co/godist">rentry<a/>
 <div align='center'> 
   <b> 　　 </b>
 ::
