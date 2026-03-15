@@ -8,10 +8,10 @@
 
 <b> Flaine / Others , Xe / Ask .  <br>
 
-offtab really often, w2i or we might not see the message ! Reading name for status is also recommended okay. . . we're very often seen ( like all the time ) with our partner and prefer to stick around him @Th3strongest <3 . usually commonly seen in safe server 2 .
+offtab really often, w2i or we might not see the message ! Reading name for status is also recommended okay. . . we're very often seen ( like all the time ) with our partner and prefer to stick around him @Th3strongest <3 . usually commonly seen in safe server 2 mainly , occasionally other servers for regiment events. we do not like safe server 1 all too much , if we are present there it's most likely for regiment events or for a friend .
   <b> 　　 </b>
 
-mild-severe touch trigger/discomfort + heavy cover discomfort. do not c+h nor cover without asking or we will move away , refrain from c+h if we're already with our partner / friends . do iwecare when interacting with us . memory related troubles may occur and we may have moments of unstability , we're very sensitive to many things so expect us to react likewise . you're still very allowed to come interact with us but just know we may be very awkward and find it hard to keep a conversation going with strangers if we don't have friends around. . .
+mild-severe touch trigger/discomfort + heavy cover discomfort. do not c+h nor cover without asking or we will move away ( unless its clear you're a comf / allowed ) , refrain from c+h if we're already with our partner / friends . do iwecare when interacting with us . memory related troubles may occur and we may have moments of unstability , we're very sensitive to many things so expect us to react likewise . you're still very allowed to come interact with us but just know we may be very awkward and find it hard to keep a conversation going with strangers if we don't have friends around. . .
   <b> 　　 </b>
 
 ✦. links down below .
