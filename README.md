@@ -18,8 +18,8 @@ image placeholder
 <h4 align="center">$\color{#8f1402}{\textsf{flaine}}$ $\color{#f2b949}{\textsf{ou}}$ $\color{#cc5500}{\textsf{flan}}$ <br> 
 <h4 align="center">$\color{#cc5500}{\textsf{xe}}$ $\color{#f2b949}{\textsf{/ ask ⊹ ࣪ ˖ }}$ $\color{#cc5500}{\textsf{sys}}$ $\color{#f2b949}{\textsf{host}}$ <br>
 
-<h4 align="center">$\color{#8A0800FF}{\textsf{w2i if important , ask2cuddle (will likely decline if not familiar) especially if we are already with friends/our partner beforehand . iwc/iwec always ! frequent mood swings , memory related troubles may occur . the one you talk to may not always be me ( the host ) and some of us may perceive differently regarding how close you are to them.}}$ <br>
-  <h4 align="center">$\color{#8A0800FF}{\textsf{dni if the status says so , we rarely allow exceptions to this .}}$ <br>
+<h4 align="center">$\color{#8A0800FF}{\textsf{w2i if important , ask2cuddle (will likely decline if not familiar) especially if we are already with friends/our partner beforehand . iwc/iwec always ! frequent mood swings , memory related troubles may occur . the one you talk to may not always be me ( the host ) and some of us may perceive differently regarding how close you are to them . NO flirting and NO feminine pronouns UNLESS partner . we will react negatively if you do either of those two things to us and potentially avoid interacting with you .}}$ <br>
+  <h4 align="center">$\color{#8A0800FF}{\textsf{dni if the status says so , we rarely allow exceptions to this . we block rarely and freely .}}$ <br>
   <b> 　　 </b>
 <p align="center"> 
 <img src="https://file.garden/aL0qqr5-Fnt8to6H/darkcarmine.png"
