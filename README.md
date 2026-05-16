@@ -15,22 +15,22 @@
 image placeholder
 <b> 　　 </b>
 
-$\color{#8f1402}{\textsf{flaine}}$ $\color{#f2b949}{\textsf{ou}}$ $\color{#cc5500}{\textsf{flan}}$ <br> 
-$\color{#cc5500}{\textsf{xe}}$ $\color{#f2b949}{\textsf{/ ask ⊹ ࣪ ˖ }}$ $\color{#cc5500}{\textsf{sys}}$ $\color{#f2b949}{\textsf{host}}$ <br>
+<h4 align="center">$\color{#8f1402}{\textsf{flaine}}$ $\color{#f2b949}{\textsf{ou}}$ $\color{#cc5500}{\textsf{flan}}$ <br> 
+<h4 align="center">$\color{#cc5500}{\textsf{xe}}$ $\color{#f2b949}{\textsf{/ ask ⊹ ࣪ ˖ }}$ $\color{#cc5500}{\textsf{sys}}$ $\color{#f2b949}{\textsf{host}}$ <br>
 
-$\color{#8A0800FF}{\textsf{offtab often , w2i if important}}$ <br>
+<h4 align="center">$\color{#8A0800FF}{\textsf{offtab often , w2i if important}}$ <br>
   <b> 　　 </b>
 <p align="center"> 
-<img src="https://file.garden/aL0qqr5-Fnt8to6H/carmine.png"
+<img src="https://file.garden/aL0qqr5-Fnt8to6H/darkcarmine.png"
   width="850"/>
 
-$\color{#f2b949}{\textsf{✦. links down below .}}$ <br>
+<h4 align="center">$\color{#f2b949}{\textsf{✦. links down below .}}$ <br>
 
- reworking  $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ reworking $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://pronouns.cc/@et3rnalsun">pronouns</a> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://rentry.co/godist">rentry<a/>
+ <h4 align="center">reworking  $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ reworking $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://pronouns.cc/@et3rnalsun">pronouns</a> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://rentry.co/godist">rentry<a/>
 <div align='center'> 
   <b> 　　 </b>
   
-$\color{#8f1402}{\textsf{𝜗ৎ}}$ <br>
+$\color{#8f1402}{\textsf{𝜗ৎ cred to cursed-carmine on tumblr for dividers.}}$ <br>
   
 <div align='center'> 
 
@@ -40,23 +40,16 @@ $\color{#8f1402}{\textsf{𝜗ৎ}}$ <br>
   width="850"/>
   
 <div align='center'> 
-  <b> 　　 </b>
-  " 𝖢𝖺𝗇 𝗒𝗈𝗎 𝗃𝗎𝗌𝗍 𝖺𝖽𝗆𝗂𝗍 𝗍𝗁𝖺𝗍 𝖨 𝖺𝗆 𝗌𝗍𝗋𝗈𝗇𝗀𝖾𝗋 𝗍𝗁𝖾𝗇 𝗒𝗈𝗎 ? "
-   <br>　　<br>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=times+new+roman&pause=2500&color=AE0A00&center=true&width=652&height=100&lines=can+you+just+admit+that+i+am+stronger+then+you%3F" alt="Typing SVG" /></a>
 
 <div align='center'> 
-  <b> 　　 </b>
-" 𝖸𝗈𝗎'𝗋𝖾 𝗇𝗈𝗍 𝖺 𝗍𝗁𝗋𝖾𝖺𝗍 𝗍𝗈 𝗆𝗒 𝖾𝗆𝗉𝗂𝗋𝖾, 𝗇𝗈𝗍 𝖾𝗏𝖾𝗇 𝖺 𝗅𝗂𝗍𝗍𝗅𝖾 𝖻𝗂𝗍 . "
-   <br>　　<br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=times+new+roman&pause=2500&color=FFF175&center=true&width=652&height=100&lines=you're+not+a+threat+to+my+empire;not+even+a+little+bit" alt="Typing SVG" /></a>
+  
+<div align='center'> 
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=times+new+roman&pause=2500&color=8B008B&center=true&width=652&height=100&separator=%3C&lines=i'll+give+you+a+choice;%3Cmake+the+right+investment" alt="Typing SVG" /></a>
+  
+<div align='center'> 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=times+new+roman&pause=2500&color=4D1065&center=true&width=652&height=100&lines=you+can't+beat+me+in+a+story+i+wrote" alt="Typing SVG" /></a>
 
 <div align='center'> 
-  <b> 　　 </b>
-" 𝖸𝗈𝗎 𝖼𝖺𝗇'𝗍 𝖻𝖾𝖺𝗍 𝗆𝖾 𝗂𝗇 𝖺 𝗌𝗍𝗈𝗋𝗒 𝗍𝗁𝖺𝗍 𝖨 𝗐𝗋𝗈𝗍𝖾 . "
-   <br>　　<br>
-
-<div align='center'> 
-  <b> 　　 </b>
-" 𝖨'𝗅𝗅 𝗀𝗂𝗏𝖾 𝗒𝗈𝗎 𝖺 𝖼𝗁𝗈𝗂𝖼𝖾; 𝗆𝖺𝗄𝖾 𝗍𝗁𝖾 𝗋𝗂𝗀𝗁𝗍 𝗂𝗇𝗏𝖾𝗌𝗍𝗆𝖾𝗇𝗍 . "
-   <br>　　<br>
-
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=times+new+roman&pause=2500&color=F5FBFF&center=true&width=652&height=100&lines=if+i'm+going+to+die;i'm+gonna+make+sure+he+does+too" alt="Typing SVG" /></a>
