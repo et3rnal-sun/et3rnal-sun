@@ -1,17 +1,23 @@
-
-
 <div align='center'> 
 <div align='center'> 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Times+New+Roman&pause=2536&color=8A0000&center=true&multiline=true&width=300&height=60&lines=eternally+hand+in+hand;by+your+side+%2C+dearest+Vacuity+." alt="Typing SVG" /></a>
+
+  <div align='center'> 
+<div align='center'> 
+
+<a href="https://hits.sh/github.com/et3rnal-sun/"><img alt="Hits" src="https://hits.sh/github.com/et3rnal-sun.svg?style=plastic&label=%22%20sole%20oriente%20.&color=f19b40&labelColor=b91327"/></a>
+
   <br>　　<br>
-<img width="700" height="750" alt="PrinceZam" src="https://file.garden/aL0qqr5-Fnt8to6H/ezgif.com-speed_7.gif"/>
+image placeholder
+<b> 　　 </b>
+
+$\color{#8f1402}{\textsf{ ‎ ‎  ‎ ‎ flaine}}$ $\color{#f2b949}{\textsf{ou}}$ $\color{#cc5500}{\textsf{flan}}$ <br> 
+$\color{#cc5500}{\textsf{ ‎ ‎  ‎ ‎ xe}}$ $\color{#f2b949}{\textsf{/ ask ⊹ ࣪ ˖ }}$ $\color{#cc5500}{\textsf{sys}}$ $\color{#f2b949}{\textsf{host}}$ <br>
+
+$\color{#8A0800FF}{\textsf{ ‎ ‎  ‎ ‎ offtab often , w2i if important}}$ <br>
   <b> 　　 </b>
 
-<b> Flaine / Others , Xe / Ask .  <br>
-
-offtab really often, w2i or we might not see the message ! Reading name for status is also recommended okay. . . we're very often seen ( like all the time ) with our partner and prefer to stick around him @Th3strongest <3 . usually commonly seen in safe server 2 mainly , occasionally other servers for regiment events. we do not like safe server 1 all too much , if we are present there it's most likely for regiment events or for a friend .
-  <b> 　　 </b>
-
-mild-severe touch trigger/discomfort + heavy cover discomfort. do not c+h nor cover without asking or we will move away ( unless its clear you're a comf / allowed ) , refrain from c+h if we're already with our partner / friends . do iwecare when interacting with us . memory related troubles may occur and we may have moments of unstability , we're very sensitive to many things so expect us to react likewise . you're still very allowed to come interact with us but just know we may be very awkward and find it hard to keep a conversation going with strangers if we don't have friends around. . .
+,,,
   <b> 　　 </b>
 
 ✦. links down below .
