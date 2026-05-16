@@ -7,29 +7,38 @@
 
 <a href="https://hits.sh/github.com/et3rnal-sun/"><img alt="Hits" src="https://hits.sh/github.com/et3rnal-sun.svg?style=plastic&label=%22%20sole%20oriente%20.&color=f19b40&labelColor=b91327"/></a>
 
+<p align="center"> 
+<img src="https://file.garden/aL0qqr5-Fnt8to6H/golddivider.png"
+  width="850"/>
+
   <br>　　<br>
 image placeholder
 <b> 　　 </b>
 
-$\color{#8f1402}{\textsf{ ‎ ‎  ‎ ‎ flaine}}$ $\color{#f2b949}{\textsf{ou}}$ $\color{#cc5500}{\textsf{flan}}$ <br> 
-$\color{#cc5500}{\textsf{ ‎ ‎  ‎ ‎ xe}}$ $\color{#f2b949}{\textsf{/ ask ⊹ ࣪ ˖ }}$ $\color{#cc5500}{\textsf{sys}}$ $\color{#f2b949}{\textsf{host}}$ <br>
+$\color{#8f1402}{\textsf{flaine}}$ $\color{#f2b949}{\textsf{ou}}$ $\color{#cc5500}{\textsf{flan}}$ <br> 
+$\color{#cc5500}{\textsf{xe}}$ $\color{#f2b949}{\textsf{/ ask ⊹ ࣪ ˖ }}$ $\color{#cc5500}{\textsf{sys}}$ $\color{#f2b949}{\textsf{host}}$ <br>
 
-$\color{#8A0800FF}{\textsf{ ‎ ‎  ‎ ‎ offtab often , w2i if important}}$ <br>
+$\color{#8A0800FF}{\textsf{offtab often , w2i if important}}$ <br>
   <b> 　　 </b>
+<p align="center"> 
+<img src="https://file.garden/aL0qqr5-Fnt8to6H/carmine.png"
+  width="850"/>
 
-,,,
-  <b> 　　 </b>
+$\color{#f2b949}{\textsf{✦. links down below .}}$ <br>
 
-✦. links down below .
-
- reworking˗ˏˋ ★ ˎˊ˗ reworking ˗ˏˋ ★ ˎˊ˗ <a href="https://pronouns.cc/@et3rnalsun">pronouns</a> ˗ˏˋ ★ ˎˊ˗ <a href="https://psalm.atabook.org">atabook<a/> ˗ˏˋ ★ ˎˊ˗ <a href="https://rentry.co/godist">rentry<a/>
+ reworking  $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ reworking $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://pronouns.cc/@et3rnalsun">pronouns</a> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://rentry.co/godist">rentry<a/>
 <div align='center'> 
   <b> 　　 </b>
-::
+  
+$\color{#8f1402}{\textsf{𝜗ৎ}}$ <br>
+  
 <div align='center'> 
 
   
-══════════════════════════════════════════
+<p align="center"> 
+<img src="https://file.garden/aL0qqr5-Fnt8to6H/golddivider2.png"
+  width="850"/>
+  
 <div align='center'> 
   <b> 　　 </b>
   " 𝖢𝖺𝗇 𝗒𝗈𝗎 𝗃𝗎𝗌𝗍 𝖺𝖽𝗆𝗂𝗍 𝗍𝗁𝖺𝗍 𝖨 𝖺𝗆 𝗌𝗍𝗋𝗈𝗇𝗀𝖾𝗋 𝗍𝗁𝖾𝗇 𝗒𝗈𝗎 ? "
