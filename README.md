@@ -30,7 +30,7 @@ image placeholder
 
 <h4 align="center">$\color{#f2b949}{\textsf{✦. links down below .}}$ <br>
 
- <h4 align="center">reworking  $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ reworking $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://pronouns.cc/@et3rnalsun">pronouns</a> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://rentry.co/godist">rentry<a/>
+ <h4 align="center">reworking  $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ reworking $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://pronouns.cc/@et3rnalsun">pronouns</a> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://rentry.co/voyant">rentry<a/>
 <div align='center'> 
   <b> 　　 </b>
   
