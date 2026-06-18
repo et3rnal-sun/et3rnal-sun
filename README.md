@@ -11,14 +11,21 @@
 <img src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled50_20260618144421.png"
   width="850"/>
 
-  <br>　　<br>
-reworking.
-<b> 　　 </b>
+<table>
+<br>
+    <tr>
+      <td>
+        <br>
+       　 ㅤ ${\textsf{\color{#C27484} ㅤ unfathomably}}$ ㅤ ${\textsf{\color{#C27484} loud}}$ ㅤ ${\textsf{\color{#AD6683} as}}$ ㅤ ${\textsf{\color{#AD6683} you}}$ ㅤ ${\textsf{\color{#884C82} ㅤ call}}$ ㅤ ${\textsf{\color{#884C82} ㅤ out}}$ ㅤ ${\textsf{\color{#894c82} ㅤ my}}$  ㅤ ${\textsf{\color{#492562} ㅤ name}}$      　 ㅤ
+         <br>
+      </td>
+    </tr>
+    </table>
 
 
-<h4 align="center">$\color{#f2b949}{\textsf{✦. links down below .}}$ <br>
+<h4 align="center">$\color{#884C82}{\textsf{✦. reworking}}$ <br>
 
- <h4 align="center">reworking  $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ reworking $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://pronouns.cc/@et3rnalsun">pronouns</a> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#cc5500}{\textsf{˗ˏˋ ★ ˎˊ˗}}$ <a href="https://rentry.co/voyant">rentry<a/>
+ <h4 align="center">reworking  $\color{#894c82}{\textsf{☯︎}}$ reworking $\color{#894c82}{\textsf{☯︎}}$ <a href="https://pronouns.cc/@et3rnalsun">prns.cc</a> $\color{#894c82}{\textsf{☯︎}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#894c82}{\textsf{☯︎}}$ <a href="https://rentry.co/voyant">rentry<a/>
 <div align='center'> 
   <b> 　　 </b>
   
