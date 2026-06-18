@@ -16,7 +16,7 @@
     <tr>
       <td>
         <br>
-       　 ㅤ<img width="30" height="30" alt="wifies"src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled48_20260611085551.png" /> ${\textsf{\color{#C27484} ㅤ unfathomably}}$ ㅤ ${\textsf{\color{#C27484} loud}}$ ㅤ ${\textsf{\color{#AD6683} as}}$ ㅤ ${\textsf{\color{#AD6683} you}}$ ㅤ ${\textsf{\color{#884C82} ㅤ call}}$ ㅤ ${\textsf{\color{#884C82} ㅤ out}}$ ㅤ ${\textsf{\color{#894c82} ㅤ my}}$  ㅤ ${\textsf{\color{#492562} ㅤ name}}$ <img width="30" alt="grave" src="https://64.media.tumblr.com/c8497239037f7de3a8dc320f20161415/25d60ae9d20c2f0a-40/s75x75_c1/6254f1740581c9dcc2c30d4c898f3c90584f8c51.gif"  />          　 　
+       　 ㅤ<img width="30" height="30" alt="wifies"src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled48_20260611085551.png" /> ${\textsf{\color{#C27484} ㅤ i}}$ ㅤ ${\textsf{\color{#C27484} want}}$ ㅤ ${\textsf{\color{#AD6683} you. . .}}$ ㅤ ${\textsf{\color{#AD6683} to}}$ ㅤ ${\textsf{\color{#884C82} ㅤ get}}$ ㅤ ${\textsf{\color{#884C82} ㅤ a taste}}$ ㅤ ${\textsf{\color{#894c82} ㅤ of the}}$  ㅤ ${\textsf{\color{#492562} ㅤ power}}$ <img width="30" alt="grave" src="https://64.media.tumblr.com/c8497239037f7de3a8dc320f20161415/25d60ae9d20c2f0a-40/s75x75_c1/6254f1740581c9dcc2c30d4c898f3c90584f8c51.gif"  />          　 　
          <br>
       </td>
     </tr>
