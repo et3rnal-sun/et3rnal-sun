@@ -30,6 +30,17 @@
  ${\textsf{\color{#C27484}⊹ ࣪ ˖ ㅤ }}$ $\color{#492562}{\textsf{︵}}$ <a href="https://pronouns.cc/@et3rnalsun">prns.cc</a> $\color{#884C82}{\textsf{☯︎}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#492562}{\textsf{☯︎}}$ <a href="https://rentry.co/voyant">rentry<a/>  ${\textsf{\color{#AD6683} ㅤ. ⏔}}$ <img width="30" alt="wifiescamera" src="https://files.catbox.moe/ho2at2.gif"  />
 <div align='center'> 
   <b> 　　 </b>
+
+  <table>
+<br>
+    <tr>
+      <td>
+        <br>
+       　  ${\textsf{\color{#C27484} ㅤ let}}$ ㅤ ${\textsf{\color{#C27484} me}}$ ㅤ ${\textsf{\color{#AD6683} in}}$ ㅤ ${\textsf{\color{#AD6683} i'll}}$ ㅤ ${\textsf{\color{#884C82} ㅤ make}}$ ㅤ ${\textsf{\color{#884C82} ㅤ sure}}$ ㅤ ${\textsf{\color{#894c82} ㅤ you'll}}$  ㅤ ${\textsf{\color{#492562} ㅤ win.}}$          　 　
+         <br>
+      </td>
+    </tr>
+    </table>
   
 
 <div align='center'> 
