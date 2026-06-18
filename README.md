@@ -5,7 +5,7 @@
   <div align='center'> 
 <div align='center'> 
 
-<a href="https://hits.sh/github.com/et3rnal-sun/"><img alt="Hits" src="https://hits.sh/github.com/et3rnal-sun.svg?style=flat-square&label=%E2%98%AF%EF%B8%8E%E3%85%A4directors%20pawns%E3%85%A4.&extraCount=263&color=AD6683&labelColor=492562"/></a>
+<a href="https://hits.sh/github.com/et3rnal-sun/"><img alt="Hits" src="https://hits.sh/github.com/et3rnal-sun.svg?style=flat-square&label=%E2%98%AF%EF%B8%8E%E3%85%A4directors%20pawns%E3%85%A4.&color=AD6683&labelColor=492562"/></a>
 
 <p align="center"> 
 <img src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled50_20260618144421.png"
