@@ -22,6 +22,10 @@
     </tr>
     </table>
 
+</p>
+<p align="center">
+  <img width="500" height="500" alt="directorspear" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled48_20260611090231.png" />
+</p>
 
 <h4 align="center">$\color{#884C82}{\textsf{✦. reworking}}$ <br>
 
