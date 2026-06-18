@@ -5,7 +5,7 @@
   <div align='center'> 
 <div align='center'> 
 
-<a href="https://hits.sh/github.com/et3rnal-sun/"><img alt="Hits" src="https://hits.sh/github.com/et3rnal-sun.svg?style=plastic&label=%22%20sole%20oriente%20.&color=f19b40&labelColor=b91327"/></a>
+<a href="https://hits.sh/github.com/et3rnal-sun/"><img alt="Hits" src="https://hits.sh/github.com/et3rnal-sun.svg?style=flat-square&label=%E2%98%AF%EF%B8%8E%E3%85%A4directors%20pawns%E3%85%A4.&extraCount=263&color=AD6683&labelColor=492562"/></a>
 
 <p align="center"> 
 <img src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled50_20260618144421.png"
@@ -24,4 +24,3 @@ reworking.
   
 
 <div align='center'> 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=times+new+roman&pause=2500&color=F5FBFF&center=true&width=652&height=100&lines=if+i'm+going+to+die;i'm+gonna+make+sure+he+does+too" alt="Typing SVG" /></a>
