@@ -27,7 +27,7 @@
   <img width="250" height="250" alt="directorspear" src="https://file.garden/aL0qqr5-Fnt8to6H/Untitled48_20260611090231.png" />
 </p>
 
- ${\textsf{\color{#C27484}⊹ ࣪ ˖ ㅤ }}$ $\color{#492562}{\textsf{︵}}$ <a href="https://pronouns.cc/@wifies.">prns.cc</a> $\color{#884C82}{\textsf{☯︎}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#492562}{\textsf{☯︎}}$ <a href="https://rentry.co/voyant">rentry<a/>  ${\textsf{\color{#AD6683} ㅤ. ⏔}}$ <img width="30" alt="wifiescamera" src="https://files.catbox.moe/ho2at2.gif"  />
+ ${\textsf{\color{#C27484}⊹ ࣪ ˖ ㅤ }}$ $\color{#492562}{\textsf{︵}}$ <a href="https://pronouns.cc/@wifies.">prns.cc</a> $\color{#884C82}{\textsf{☯︎}}$ <a href="https://psalm.atabook.org">atabook<a/> $\color{#492562}{\textsf{☯︎}}$ <a href="https://fluffle.cc/directorsfies">fluffle.cc<a/>  ${\textsf{\color{#AD6683} ㅤ. ⏔}}$ <img width="30" alt="wifiescamera" src="https://files.catbox.moe/ho2at2.gif"  />
 <div align='center'> 
   <b> 　　 </b>
 
